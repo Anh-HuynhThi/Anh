@@ -8,6 +8,3 @@
 - 📫 How to reach me:
 - Email: anh.bruneau@gmail.com
 - Catch me from: https://www.linkedin.com/in/anh-huynh-92055a253/
-CONNECT WITH ME:
-![image](https://user-images.githubusercontent.com/114925589/198409832-95ceb06b-5f4c-4429-ba22-c48008532847.png), ![image](https://user-images.githubusercontent.com/114925589/198409904-7d63ee87-71ca-48eb-b263-20790c484c6d.png)
-
