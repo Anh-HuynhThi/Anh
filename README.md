@@ -4,7 +4,7 @@
 - 🎯 I’m currently focusing on: Problem-Solving, business analysist⭐️ star the projects if you like it 🤩.
 - 😌 I’m currently open for: A new job opportunity
 - 💬 Ask me about anything: Here.
-- 😄 Fun fact: I love Codeing(💻), Traveling(🌍), Yoga(🚗),Food and Music(🎵)
+- 😄 Fun fact: I love Codeing(💻), Traveling(🌍), Yoga(🚗),Food(:stew:) and Music(🎵)
 - 📫 How to reach me:
 - Email-me: anh.bruneau@gmail.com
 - Catch me from: https://www.linkedin.com/in/anh-huynh-92055a253/
