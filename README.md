@@ -6,5 +6,5 @@
 - 💬 Ask me about anything: Here.
 - 😄 Fun fact: I love Codeing 💻, Traveling🌍, running :runner:,Food(:stew:) and Music 🎵
 - 📫 How to reach me:
-- ![image](https://user-images.githubusercontent.com/114925589/198409392-7d304fc3-7dde-46d7-97d5-e0094a910315.png): anh.bruneau@gmail.com
+- Email: anh.bruneau@gmail.com
 - Catch me from: https://www.linkedin.com/in/anh-huynh-92055a253/
